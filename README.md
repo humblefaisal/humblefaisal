@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... Everything
 - 🌱 I’m currently learning ... Coding stuff
 - 💞️ I’m looking to collaborate on ... Nothing
-- 📫 How to reach me ... You cant
+- 📫 How to reach me ... mdfaisalaftab2004@gmail.com
 - 😄 Pronouns: ... seriously?
 - ⚡ Fun fact: ... 
 
